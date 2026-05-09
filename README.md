@@ -1,6 +1,6 @@
 ## I am Nicholas, also known as Brulle.
 
-### Swedish, 2010, Game Developer.
+### Swedish, 16, Game Developer.
 
 ---
 
