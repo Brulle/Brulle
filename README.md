@@ -12,8 +12,8 @@ Most of my C++ knowledge has been gotten from remaking Fortnite for over 5 years
 
 > **Socials**:
 
-@notbrulle on Tiktok
+[@notbrulle on Tiktok](https://www.tiktok.com/@notbrulle)
 
 @notbrulle on Discord
 
-@NotBrulle on YouTube
+[@NotBrulle on YouTube](https://www.youtube.com/@NotBrulle)
